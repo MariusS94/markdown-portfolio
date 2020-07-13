@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+### Lieblings Serien
+* Breaking Bad
+* Game of Thrones
