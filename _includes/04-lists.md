@@ -1,3 +1,3 @@
-### Lieblings Serien
-* Breaking Bad
-* Game of Thrones
+### Lieblings Serien:heart:
+* **Breaking Bad**
+* *Game of Thrones*
